@@ -69,4 +69,8 @@ AI Data Analytics | PumoTech
 
 🤝 Connect with Me
 
-LinkedIn | GitHub
+📧 [Mail](mailto:sudhiguna2004@gmail.com)
+
+🔗 [LinkedIn](https://linkedin.com/in/sudhiksha-gunasekaran-800743284)
+
+💻 [GitHub](https://github.com/sudhi-hub)
